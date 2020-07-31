@@ -3,4 +3,4 @@ flowers smell good
 
 so are trees
 
-and so are you
+and so are you :)
